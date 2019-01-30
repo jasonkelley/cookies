@@ -5,7 +5,7 @@
 2. Blend crisco, sugars, eggs, and vanilla in a large bowl.
 
 3. Sift dry ingredients and blend them into the main bowl.
- 
+
 4. Stir in peanut butter.
 
 5. Roll large spoonfuls of cookie dough into balls, then drop onto ungreased

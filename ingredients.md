@@ -8,4 +8,5 @@
 - 3/4 cup white sugar
 - 2 eggs
 - 1/2 teaspoon vanilla
+
 - 6 oz. peanut butter
